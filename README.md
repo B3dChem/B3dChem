@@ -3,7 +3,7 @@
 <img width="1822" height="550" alt="2026_03_02_0vp_Kleki" src="https://i.pinimg.com/1200x/84/cd/0a/84cd0a230a5c4442090143333b02f28a.jpg" />
 <p align="center">
   
-# $${\color{red}Loretta\space|\space17\space|\space haiii\space pls\space read\space carrd!\space C+H\space Enc!}$$
+# $${\color{red}Loretta\space|\space17\space|\space haiii\space pls\space read\space straw!\space C+H\space Enc!}$$
 
 <p align="center">
 
