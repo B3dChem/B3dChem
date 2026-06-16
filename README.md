@@ -1,4 +1,6 @@
-
+<p align="center">  
+ $${\color{red}DNI\space OLD\space FRIENDS}$$
+<p align="center">
   
 <img width="1822" height="550" alt="2026_03_02_0vp_Kleki" src="https://i.pinimg.com/1200x/84/cd/0a/84cd0a230a5c4442090143333b02f28a.jpg" />
 <p align="center">
